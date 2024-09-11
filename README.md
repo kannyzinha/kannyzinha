@@ -1,11 +1,11 @@
- BOAS VINDAS AO MEU PERFIL 👌
+ 𝐁𝐎𝐀𝐒 𝐕𝐈𝐍𝐃𝐀𝐒 𝐀𝐎 𝐌𝐄𝐔 𝐏𝐄𝐑𝐅𝐈𝐋!!👌
 
- Kannyzinha
+ 𝙖𝙣𝙣𝙮𝙯𝙞𝙣𝙝𝙖;)
 
-- Meu nome é Kawany💕
+- 𝙢𝙚𝙪 𝙣𝙤𝙢𝙚 é 𝙠𝙖𝙬𝙖𝙣𝙮 😎✔
 
-- Estou estudando Alura.
+- 𝙀𝙨𝙩𝙤𝙪 𝙚𝙨𝙩𝙪𝙙𝙖𝙣𝙙𝙤 𝘼𝙡𝙪𝙧𝙖.
 
-- Estou desenvolvendo habilidades no JavaScript.
+- 𝙀𝙨𝙩𝙤𝙪 𝙙𝙚𝙨𝙚𝙣𝙫𝙤𝙡𝙫𝙚𝙣𝙙𝙤 𝙝𝙖𝙗𝙞𝙡𝙞𝙙𝙖𝙙𝙚𝙨 𝙣𝙤 𝙅𝙖𝙫𝙖𝙎𝙘𝙧𝙞𝙥𝙩.
 
-![](https://tenor.com/pt-BR/view/cool-monkey-gif-4053977429605610046)
+![](https://media.tenor.com/agAQc8T3ChEAAAAi/so.gif)
